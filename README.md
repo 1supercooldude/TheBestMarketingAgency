@@ -1,15 +1,9 @@
 # TheBestMarketingAgency
 
-The Best Marketing Agency, an all-purpose marketing agency, is defining the grey area between the black and white of marketing. Specializing in the best digital marketing tactics they incorporate honest work behind all their projects.
+The Best Marketing Agency is a full-servce digital marketing agency in San Antonio, Texas that strives to help small businesses and nonprofits succeed. They offer a variety of affordable digital marketing services, including graphic design, social media, web design, SEO, content marketing, email marketing, blogging, and video marketing.
 
-Quit letting your Google/Facebook Ads go down the toilet. Revamp your conversion rates and reduce costs with our optimization process.
+Build trust and a connection with potential customers by sharing your company’s experiences and personality through engaging visual content on Instagram.  
 
-Is social media changing too rapidly for you to keep up? Let us create and manage unique and powerful content for your social media accounts.
-
-A website is good, but a beautiful website is great. A modern web design keeps you professional and keeps you ahead of your competition. 
-
-Whether you are launching a new business, product or service, or rebranding an existing one, branding is the key factor for success.
-
-Studies have shown that online reviews can be just as powerful as word of mouth. One bad experience can drive away hundreds of potential customers. Negative reviews can hurt a lot — we'll make them hurt less.
+Find out how The Best Marketing Agency can help showcase your brand and create a personal feel for your business on Instagram. 
 
 Brought to you by [The Best Marketing Agency](https://www.thebestmarketingagency.net)
